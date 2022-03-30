@@ -6,4 +6,4 @@
 - 🐍🤴🏾🏰👨🏾‍💻 Aprendendo Python (Learning Python)
 - 👷🏾‍♂️👨🏾‍💻 Me apaixonando pelos códigos (Getting in love with coding - Maybe I should change my career)
 - 👨🏾‍🦱 Pronomes (Pronouns): Ele/Dele (He/Him)
-- 🙊 Curiosidade (Fun-fact): Por enquanto, sem redes sociais! (I have no social network ~ for now 🤪)
+- LinkedIn: https://www.linkedin.com/in/thiago-william-pires-sousa/
